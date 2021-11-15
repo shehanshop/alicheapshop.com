@@ -1,1 +1,1 @@
-# www.alicheapshop.com
+# alicheapshop.com
